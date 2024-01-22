@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NoraLovesScripting
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on Discord
+- 📫 How to reach me Xamenia12@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: None
